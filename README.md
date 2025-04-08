@@ -1,5 +1,5 @@
-Nikhil Garg
-Technical lead at HCL Technologies, Pune
+Nikhil Garg 
+Technical lead at HCL Technologies, Pune 
 07276561520 || nikhilgarg855@gmail.com || [Linkedin](https://www.linkedin.com/in/garg-nikhil/)
 
 Summary
